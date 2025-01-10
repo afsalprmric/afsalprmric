@@ -53,7 +53,7 @@ Feel free to reach out if you're interested in collaborating or learning more ab
 
 Email: afsalpmric@gmail.com
 
-LinkedIn: Muhammed Afsal (https://t.me/+919526633572)
+LinkedIn: Muhammed Afsal https://www.linkedin.com/in/muhammed-afsal-hudawi-545431155
 
 Portfolio Website: My Website (https://wa.me/c/919526633572)
 
